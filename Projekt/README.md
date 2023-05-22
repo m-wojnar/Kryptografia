@@ -1,1 +1,0 @@
-# parity-machines-MKwAD
